@@ -10,8 +10,8 @@ My strengths :muscle::
 - Self-confident and hard-working
 
 ... and weaknesses :crying_cat_face::
-- Can be overly analytical and judgmental :warning:
-- Very perfectionistic :trophy:
+- Judgmental :warning:
+- Perfectionistic :trophy:
 - Sometimes seems callous or insensitive
 
 ---
