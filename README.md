@@ -12,7 +12,6 @@ My strengths :muscle::
 ... and weaknesses :crying_cat_face::
 - Can be overly analytical and judgmental :warning:
 - Very perfectionistic :trophy:
-- Dislikes talking about emotions
 - Sometimes seems callous or insensitive
 
 ---
