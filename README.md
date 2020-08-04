@@ -17,4 +17,4 @@ My strengths :muscle::
 ---
 
 I’m currently working on my pet project:
-Being productive is about achieving goals and making the most of your :clock2:: [iamhomer.com](https://www.iamhomer.com) 
+Being productive is about achieving goals and making the most of your time :clock2:: [iamhomer.com](https://www.iamhomer.com) 
